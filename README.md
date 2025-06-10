@@ -1,1 +1,1 @@
-### Resume Apurbo:
+### Resume Apurbo
